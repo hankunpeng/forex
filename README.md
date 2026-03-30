@@ -1,0 +1,2 @@
+# forex
+CN Market Update
